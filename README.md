@@ -1,4 +1,4 @@
-### Hi there 👋
+### 포기 못하는 사나이!
 
 <!--
 **jeonyh0924/jeonyh0924** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
